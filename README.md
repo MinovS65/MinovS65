@@ -1,4 +1,4 @@
-Az sum minov i slusham pesenta the scatman vmomenta 😳
-Rabotq vuv facebook 😎💶👨‍💻
-Suvurshen maistor na technologiqta C# i .NET (shef)
-Obuchavam se na web3,solidity,javascript i razbira se the sensei - C#😎
+Аз съм Минов и в момента слушам песента The Scatman 😳
+Работя във Facebook 😎💶👨‍💻
+Съвършен майстор на технологиите C# и .NET (шеф) 🔥
+Обучавам се на Web3, Solidity, JavaScript и разбира се, сенсея – C# 😎
